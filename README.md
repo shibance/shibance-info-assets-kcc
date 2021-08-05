@@ -1,0 +1,1 @@
+# shibance-info-assets-kcc
